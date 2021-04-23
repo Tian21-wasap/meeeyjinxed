@@ -1,0 +1,2 @@
+# meeeyjinxed
+JANGAN DI BUKA
